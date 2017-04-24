@@ -1,3 +1,5 @@
+https://www.fiatphysica.com/blog/pop-culture/celebrated-geek-science-holidays
+
 
     National Science Fiction Day / Isaac Asimov’s Birthday – January 2
     Stephen Hawking’s Birthday – January 8
